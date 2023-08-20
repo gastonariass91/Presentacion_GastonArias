@@ -6,7 +6,7 @@
 
 ## Contacto:
 
-**LinkedIn**: [Enlace al Perfil](blank:#https://www.linkedin.com/in/gaston-arias/)
+**LinkedIn**: [Enlace al Perfil](https://www.linkedin.com/in/gaston-arias/)
 
 **Email**: [gaston.ariass.91@gmail.com](mailto:gaston.ariass.91@gmail.com)
 
